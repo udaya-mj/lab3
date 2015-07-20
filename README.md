@@ -1,1 +1,18 @@
 # lab3
+**Images for Lab 03**
+![lab3 images](http://i60.tinypic.com/20pu3it.jpg)
+![lab3 images](http://i62.tinypic.com/33dj9yf.jpg)
+![lab3 images](http://i62.tinypic.com/raouf7.jpg)
+![lab3 images](http://i57.tinypic.com/ws9v0z.jpg)
+![lab3 images](http://i58.tinypic.com/11094xf.jpg)
+![lab3 images](http://i62.tinypic.com/fyijx5.jpg)
+![lab3 images](http://i58.tinypic.com/znmzw1.jpg)
+![lab3 images](http://i59.tinypic.com/214z68l.jpg)
+![lab3 images](http://i57.tinypic.com/2w1v96s.jpg)
+![lab3 images](http://i57.tinypic.com/2zy9c86.jpg)
+![lab3 images](http://i58.tinypic.com/3178gle.jpg)
+![lab3 images](http://i62.tinypic.com/6r38cl.jpg)
+![lab3 images](http://i58.tinypic.com/11gm13l.jpg)
+![lab3 images](http://i62.tinypic.com/2rz457q.jpg)
+![lab3 images](http://i58.tinypic.com/2ypj6mc.jpg)
+![lab3 images](http://i60.tinypic.com/2ce3fx3.jpg)
